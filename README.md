@@ -1,0 +1,2 @@
+# GNC
+GYE NYAME COIN
